@@ -17,7 +17,7 @@ https://www.baiduwp.com/   打开这个网址，输入链接就可以直接下�
 剑桥雅思14：链接：https://pan.baidu.com/s/1LcvETwtfP2vQZXqW5AJRbw 提取码：jdlc </br>
 更多资料，雅思出国夸夸群：707257154 请加群免费获取。
 </br>
-<img src="打赏码.jpg" width=200> 
+
 </br>
 ## *托福
 1819托福真题：链接：https://pan.baidu.com/s/1y1_LbblefM0x2lKWjWN8Og 提取码：kj6s </br>
@@ -42,7 +42,7 @@ fiona口语课前资料：链接：https://pan.baidu.com/s/1Z0hthfgDuROxLBaQyomT
 托你的福1月听力和阅读听力真题：链接：https://pan.baidu.com/s/1SLcGmttBUvkNOP4BimI-Lw 提取码：9rgb  </br>
 智课网托福全套：链接：https://pan.baidu.com/s/15Vc4Z9WzXwTPJEY2y3h7MA 提取码：hdbf  </br>
 </br>
-![avatar](amm1.png)    <img src="打赏码.jpg" width=200> 
+![avatar](amm1.png)    
 </br>
 【失效问题】如果哪个资料链接失效，请加群告知 </br>
 【欢迎加入雅思备考夸夸qq群，一起夸夸】707257154 </br>
